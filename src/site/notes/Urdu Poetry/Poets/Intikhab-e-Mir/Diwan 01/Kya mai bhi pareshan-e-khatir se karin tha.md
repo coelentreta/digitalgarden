@@ -10,11 +10,11 @@ kyā maiñ bhī pareshānī-e-ḳhātir se qarīñ thā
 
 
 
-	In the first line the poet is asking a question whether he was close to a mental breakdown
+	In the first line the poet is asking a question whether he was close to a mental breakdown.
 
 kis raat nazar kī hai soī chashmak-e-anjum
 āñkhoñ ke tale apne to vo māh-jabīñ thā
-
+	which night 
 aayā to sahī vo koī dam ke liye lekin
 hoñToñ pe mire jab nafas bāz-pasīñ thā
 
