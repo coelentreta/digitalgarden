@@ -1,0 +1,13 @@
+---
+{"dg-publish":true,"permalink":"/english-poetry/poets/wb-yeats/down-by-the-salley-gardens/"}
+---
+
+
+DOWN by the salley gardens my love and I did meet;
+She passed the salley gardens with little snow-white feet.
+She bid me take love easy, as the leaves grow on the tree;
+But I, being young and foolish, with her would not agree.
+In a field by the river my love and I did stand,
+And on my leaning shoulder she laid her snow-white hand.
+She bid me take life easy, as the grass grows on the weirs;
+But I was young and foolish, and now am full of tears.
