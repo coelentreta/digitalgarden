@@ -2,8 +2,6 @@
 {"dg-publish":true,"permalink":"/urdu-poetry/poets/intikhab-e-mir-hassan/itna-malum-to-hota-hai-ki-jata-hu-kahin/"}
 ---
 
-
-
 बस कि चूँ बद्र-ए-ज़माना ये घटाता है मुझे
 दिन-ब-दिन और ही आलम नज़र आता है मुझे
 

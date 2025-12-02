@@ -5,15 +5,43 @@
 
 **gai wo baat ki ho guftugu to kyunkar ho**
 **kahe se kuchh na hua phir kaho to kyunkar ho**
+	*Gone is the basis for conversation; how then can it ensue?*
+	*Speaking before achieved nothing; how then can speaking anew come through?*		
+
+---
+	The first question that arises is whether the poet is talking to a friend or talking to himself in second person, it can not be said with certainty. 
+	Gone are the days when we used to wonder about what would we say to her if we'd get a chance to talk, i.e. we did get a chance to talk and ti didn't have any affect on her, whether that was because of her indifference or our inability to express our feelings or perhaps the inability of the language itself to capture our emotions is hard to say. But irrespective of that we blew it. And if the previous conversation wasn't enough to budge her then what can we say now that will change her mind or the outcome(this implies that the one time they did talk, the poet did everything which was possible and more). 
+
+---
+	When one is unaware of the outcome then one has the consolation of "hope" but once the outcome materialises in reality, the last consolation of hope is too pulled away. 
+
 
 **hamare zehn mein us fikr ka hai nam visal**
 **ki gar na ho to kahan jaen ho to kyunkar ho**
+	In our mind, the meeting with beloved is that concern 
+	if its not there where should we go and if it is what to do. 
 
+---
+	The poet can't tear himself away from thinking about the meeting with the beloved and yet he doesn't know what he will do when they would meet. Perhaps he fears that he will be so overwhelmed by his feelings that he won't be able to do anything or perhaps it shows his inexperience, or perhaps the poet considers physical relations with the beloved as very base and vulgar. 
+	A sher by Shariq Kaifi on a similar note- 
+	*पता नहीं ये तमन्ना-ए-क़ुर्ब कब जागी*
+	*मुझे तो सिर्फ़ उसे सोचने की आदत थी*
+		*I know not when this wish for nearness grew,* 
+		*I was content to simply think of you.*
+
+
+---
+	A psychoanalytic interpretation of the couplet is also possible, i.e. the poet's desire for meeting the beloved is nothing more than a illusion, i.e. as Lacan puts it "Desire is the desire of the Other". Implying that the person doesn't really want the beloved the hope that he will get her one day fills a hole in his heart but if he were to get it he would not know what to do with it since the dream of having it was much more fulfilling that actually having it. As Slavoj Zizek points out - **"The worst thing that can happen to you is to get exactly what you want."** 
+	Olympics players often get into depression after winning a gold medal because all their life they pursued this one thing and now that they have finally achieved it that meaning too is taken from them. 
+	The ultimate tragedy of the poet is that when he didn't have the beloved he longed for her and now that they are both together he doesn't know what to do, meaning that he is in a constant and never-ending state of longing and agony. 
+	
 **adab hai aur yahi kashmakash to kya kije**
 **haya hai aur yahi gu-magu to kyunkar ho**
 
 **tumhin kaho ki guzara sanam-paraston ka**
 **buton ki ho agar aisi hi KHu to kyunkar ho**
+	You tell me, how are the idol worshippers supposed to live
+	if this would be the behavior of the idols 
 
 **ulajhte ho tum agar dekhte ho aaina**
 **jo tum se shahr mein hon ek do to kyunkar ho**
